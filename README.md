@@ -1,4 +1,4 @@
 Prayer7Vineyard
 ===============
 
-Vineyard Sutton - 7 Steps to Effective Parying
+Vineyard Sutton - 7 Steps to Effective Praying
